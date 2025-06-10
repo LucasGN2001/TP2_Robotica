@@ -1,0 +1,1 @@
+Fotos con versiones viejas
